@@ -15,3 +15,7 @@ Stef wuz hia!
 Stoppsy was here!
 
 Nice Work Team! Very happy to see the pull requests happening.
+
+> Slow and steady wins the race.  
+> — Turtle
+(Sarah's a touch slow to get things done, but she gets there ^_^')
